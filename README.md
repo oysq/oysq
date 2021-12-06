@@ -1,4 +1,6 @@
-### Hi there 👋
+### Hi give me five first 👋👋 
+- this is **OYSQ** who always learning on the way ~~ 💬💬
+
 
 <!--
 **oysq/oysq** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
