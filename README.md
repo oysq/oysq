@@ -1,6 +1,7 @@
-### Hi give me five first 👋👋 
-- this is **OYSQ** who always learning on the way ~~ 💬💬
-
+### Hi give me five first 👋 👋 
+- in the feature, you will certainly thank you for your hard now. 💬 💬
+- and my friend, I wish you good morning, good afternoon and good night ~~ 😄 😄
+- this is **OYSQ**, from seaside，time !! ⚡ ⚡
 
 <!--
 **oysq/oysq** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
